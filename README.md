@@ -2,4 +2,4 @@
 
 Augmented Reality!
 
-Tracel AR! 
+Travel AR! 
